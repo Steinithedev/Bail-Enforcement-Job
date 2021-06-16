@@ -6,6 +6,5 @@ Please don't sell the job any further
 
 Made By STEINI
 
-my Discordname:𒆜ᗷᗩᑌᗰI#8648
+my Discordname: 𝒮𝒯𝐸𝐼𝒩𝐼#1111
 
-My FiveM Roleplay Server: https://discord.gg/QDvwCPHy2e
